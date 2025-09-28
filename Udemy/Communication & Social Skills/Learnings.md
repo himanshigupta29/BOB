@@ -1,2 +1,4 @@
-It is always good to tell your audience about how long the ppt is?
-Page no. your slides
+- It is always good to tell your audience about how long the ppt is?
+- This ppt will last roughly 10mins
+- Page no. your slides
+- Hook your audience with a question or a shock
